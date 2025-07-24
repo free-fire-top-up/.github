@@ -1,5 +1,6 @@
 # Free Fire Top Up – Best Way to Buy Diamonds Instantly in India
 
+
 ## 🚀 What is Free Fire Top Up?
 
 **Free Fire Top Up** allows players to purchase diamonds (the premium in-game currency of Garena Free Fire) to unlock skins, characters, bundles, emotes, pets, and more. With top-up services, you can enhance your gaming experience without waiting.
