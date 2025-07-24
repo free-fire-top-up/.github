@@ -58,7 +58,8 @@ We aim to help players easily find reliable Free Fire top up platforms with this
 ---
 
 ## 🏷️ Tags:
-free fire top up, free fire diamonds, ff diamond top up, buy free fire top up, free fire top up india, cheap ff topup, garena free fire top up, instant free fire recharge
+`free fire top up`, `buy ff diamonds`, `free fire recharge`, `ff top up india`, `cheap free fire diamonds`, `garena top up`, `instant free fire recharge`
+
 
 ---
 
